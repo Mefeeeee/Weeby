@@ -1,2 +1,0 @@
-# Weeby
-Jebać
